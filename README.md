@@ -1,1 +1,1 @@
-# Training-SecA ,Name-Sameer Kumar Debata,phoneno=9337768420,gmail-sameerkudebata@gmail.com
+# Training-SecA ,Name: Ambika Sony,Phone: 8709730087,Email: kumarikhushi59581@gmail.com
