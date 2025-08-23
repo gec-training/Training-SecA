@@ -8,6 +8,6 @@ Name: Ambika Sony,Phone: 8709730087,Email: kumarikhushi59581@gmail.com
 
 ## Student Info
 - Name: Shyam Sundar Bala
-- Phone: 9876543210
-- Email: shyam@example.com
+- Phone: 9905811262
+- Email: shyamsundarbala3@gmail.com
 
