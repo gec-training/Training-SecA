@@ -1,1 +1,1 @@
-# Training-SecA ,Name: Ambika Sony,Phone: 8709730087,Email: kumarikhushi59581@gmail.com
+# Training-SecA ,Name: Sovan Khan,Phone: 7679215138, Email: ksovan646@gmail.com
