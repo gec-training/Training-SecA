@@ -1,1 +1,1 @@
-# Training-SecA ,Name: Ambika Sony,Phone: 8709730087,Email: kumarikhushi59581@gmail.com
+# Training-SecA ,Name: Amlanjyoti Parida,Phone: 7205011xxx,Email: ansu500roi@gmail.com
