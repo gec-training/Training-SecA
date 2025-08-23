@@ -6,8 +6,6 @@ Riya Diwakar 8210680848 diwakarriya47@gmail.com
 
 Name: Ambika Sony,Phone: 8709730087,Email: kumarikhushi59581@gmail.com
 
-## Student Info
-- Name: Shyam Sundar Bala
-- Phone: 9905811262
-- Email: shyamsundarbala3@gmail.com
+Name : Bijaya Kumar Rout , Phone :  7846805747 ,Email : bijayakumarrout2005@gmail.com
 
+Shyam Sundar Bala Phone: 9905811262 Email: shyamsundarbala3@gmail.com
