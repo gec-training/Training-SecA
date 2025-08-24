@@ -12,3 +12,8 @@ Phone: 7077852374
 Email: anandutkarshhhhh0210@gmail.com
 
 Name:Chandan Gorai  Phone: 6204605681 Email:chandangorai8709@gmail.com
+Name : Bijaya Kumar Rout , Phone :  7846805747 ,Email : bijayakumarrout2005@gmail.com
+
+Shyam Sundar Bala Phone: 9905811262 Email: shyamsundarbala3@gmail.com
+
+Name: Abinash Sahoo, Phone: 6370144758, Email: sahooabinas3@gmail.com
