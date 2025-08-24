@@ -11,3 +11,5 @@ Name : Bijaya Kumar Rout , Phone :  7846805747 ,Email : bijayakumarrout2005@gmai
 Shyam Sundar Bala Phone: 9905811262 Email: shyamsundarbala3@gmail.com
 
 Name: Abinash Sahoo, Phone: 6370144758, Email: sahooabinas3@gmail.com
+
+Name: Aditya Raj, Phone: 7260854241, Email: aditya190904@gmail.com
