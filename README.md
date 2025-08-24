@@ -11,4 +11,4 @@ Name: Utkarsh Kumar
 Phone: 7077852374
 Email: anandutkarshhhhh0210@gmail.com
 
-NAME:Chandan Gorai  Phone: 6204605681 Email:chandangorai8709@gmail.com
+Name:Chandan Gorai  Phone: 6204605681 Email:chandangorai8709@gmail.com
