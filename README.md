@@ -1,6 +1,8 @@
 
 # Training-SecA 
 
+Soham Mukherjee, +91 9065349149, sohamaxpauli@gmail.com
+
 Sameer Kumar Debata,337768420,gmail-sameerkudebata@gmail.com
 Riya Diwakar 8210680848 diwakarriya47@gmail.com
 
@@ -13,3 +15,4 @@ Shyam Sundar Bala Phone: 9905811262 Email: shyamsundarbala3@gmail.com
 Name: Abinash Sahoo, Phone: 6370144758, Email: sahooabinas3@gmail.com
 
 Name: Aditya Raj, Phone: 7260854241, Email: aditya190904@gmail.com
+
