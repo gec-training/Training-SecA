@@ -1,5 +1,6 @@
 
 # Training-SecA 
+Name : SUBHASIS PANDA , Phone :  9306205056 ,Email : subhasispanda845@gmail.com
 
 Sameer Kumar Debata,337768420,gmail-sameerkudebata@gmail.com
 Riya Diwakar 8210680848 diwakarriya47@gmail.com
