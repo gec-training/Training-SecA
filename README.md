@@ -18,3 +18,4 @@ Name: Sunil Mishra, Phone : 6372211457, Email : sumilmishra63722@gmail.com
 Name: Rakesh Samal, phone:8260957722, E-mail:rakeshsamal798@gmail.com
 
 Name: Subrat Mallick, Phone: 9938490920, Email: subratmallick630@gmail.com
+Name: Amlan Jyoti Parida, Phone: 7205011243, Email: ansu500roi@gmail.com
