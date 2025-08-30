@@ -1,5 +1,6 @@
 
 # Training-SecA 
+Name-Sekh Danish Irfan, phone no-7815099526,gmail-skdanishirfan@gmail.com
 
 Sameer Kumar Debata,337768420,gmail-sameerkudebata@gmail.com
 Riya Diwakar 8210680848 diwakarriya47@gmail.com
