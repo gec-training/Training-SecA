@@ -1,5 +1,6 @@
 
 # Training-SecA 
+Rishi kumar bagria, 8349798746,gmail-rishi.b3005@gmail.com
 
 Sameer Kumar Debata,337768420,gmail-sameerkudebata@gmail.com
 Riya Diwakar 8210680848 diwakarriya47@gmail.com
