@@ -1,5 +1,6 @@
 
 # Training-SecA 
+Name: Santosh Prusti, Phone: 8260408138, Email: santoshprusti007@gmail.com
 
 Sameer Kumar Debata,337768420,gmail-sameerkudebata@gmail.com
 Riya Diwakar 8210680848 diwakarriya47@gmail.com
